@@ -1,0 +1,2 @@
+# hasa
+bişi denicez
